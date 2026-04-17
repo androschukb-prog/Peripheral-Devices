@@ -13,6 +13,7 @@
 ## Фото пристрою
 ![Brother HL-L2460DN](https://click.ua/content/shop/products/160176/photos/printer-a4-brother-hlminusl2460dn-left-parenthesishll2460dnyj1right-parenthesis-800x800-da98.jpg)
 
+**Ціна ~9000**
 ---
 
 ## Основні характеристики
